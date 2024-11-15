@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 🔥About Me: 🔥
 ✘ Superior em Sistemas para Internet - IFTO ✘<br>✘ Estudante de TI em fase de aprendizagem ✘<br>✘ Criação e desenvolvimento de ideias ✘
 
 
