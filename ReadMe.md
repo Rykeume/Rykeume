@@ -1,5 +1,5 @@
 # 🔥About Me: 🔥
-✘ Superior em Sistemas para Internet - IFTO ✘<br>✘ Estudante de TI em fase de aprendizagem ✘<br>✘ Criação e desenvolvimento de ideias ✘
+✘ Superior em Sistemas para Internet - IFTO ✘<br>✘ Estagiário em Tecnologia da Informação | Suporte, Processos e Sistemas ✘<br>✘ Criação e desenvolvimento de ideias ✘
 
 
 ## 🌐 Socials:
